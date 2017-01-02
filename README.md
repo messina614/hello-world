@@ -1,2 +1,2 @@
 # hello-world
-Place for my resources and ideas.
+I am a junior web designer with a background in filmmaking and digital design. 
